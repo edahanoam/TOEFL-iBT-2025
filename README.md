@@ -31,10 +31,9 @@
 - How to take notes:  
   [https://www.youtube.com/watch?v=TEO-Wsh7bhw](https://www.youtube.com/watch?v=TEO-Wsh7bhw)
 
+- I struggled with the summary question this strategy was a game changer for me:  
+  [https://www.youtube.com/watch?v=LuLfdP8ft2Mhttps://www.youtube.com/watch?v=LuLfdP8ft2M](https://www.youtube.com/watch?v=LuLfdP8ft2Mhttps://www.youtube.com/watch?v=LuLfdP8ft2M)
 
 
 **Personal note:**
-  I took the test in October 2025, after studying for less than two weeks.
-
-- I struggled with the summary question this strategy was a game changer for me:  
-  [https://www.youtube.com/watch?v=LuLfdP8ft2Mhttps://www.youtube.com/watch?v=LuLfdP8ft2M](https://www.youtube.com/watch?v=LuLfdP8ft2Mhttps://www.youtube.com/watch?v=LuLfdP8ft2M)
+  I took the test in October 2025, after studying for less than two weeks. I aimed for 100+ overall and 27+ in Speaking -- and it worked :)
