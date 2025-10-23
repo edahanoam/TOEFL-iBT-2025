@@ -32,7 +32,8 @@
   [https://www.youtube.com/watch?v=TEO-Wsh7bhw](https://www.youtube.com/watch?v=TEO-Wsh7bhw)
 
 
-  **Personal note:**
+
+**Personal note:**
   I took the test in October 2025, after studying for less than two weeks.
 
 - I struggled with the summary question this strategy was a game changer for me:  
