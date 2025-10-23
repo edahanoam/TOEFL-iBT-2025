@@ -28,10 +28,10 @@
 - Templates are necessary\! If you don’t know, these are structured ways to begin each Speaking and Writing task. I memorized one per task. Here are examples:  
   [https://www.youtube.com/watch?v=\_F5DufM-J4k](https://www.youtube.com/watch?v=_F5DufM-J4k)
 
-- How to take notes:  
+- How to Take Notes (Listening):  
   [https://www.youtube.com/watch?v=TEO-Wsh7bhw](https://www.youtube.com/watch?v=TEO-Wsh7bhw)
 
-- I struggled with the summary question this strategy was a game changer for me:  
+- I struggled with the summary question -- this strategy was a game changer for me:  
   [https://www.youtube.com/watch?v=LuLfdP8ft2Mhttps://www.youtube.com/watch?v=LuLfdP8ft2M](https://www.youtube.com/watch?v=LuLfdP8ft2Mhttps://www.youtube.com/watch?v=LuLfdP8ft2M)
 
 
