@@ -16,7 +16,7 @@
 
 - TSTprep emergency course (PAID)   
   [https://tstprep.com/dashboard/](https://tstprep.com/dashboard/)  
-  I found this useful for becoming familiar with the test, however much of the same information is available online, for example, in these channels:  
+  I found this useful for becoming familiar with the test, however much of the same information is available online, for example, in these channels (FREE):  
   [https://www.youtube.com/@TSTPrep](https://www.youtube.com/@TSTPrep)  
   [https://www.youtube.com/@linguamarina](https://www.youtube.com/@linguamarina)  
   
