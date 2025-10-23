@@ -36,4 +36,4 @@
 
 
 **Personal note:**
-  I took the test in October 2025, after studying for less than two weeks. I aimed for 100+ overall and 27+ in Speaking -- and it worked :)
+  I took the test in October 2025, after studying for less than two weeks. I aimed for 100+ overall and 27+ in Speaking.
