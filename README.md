@@ -34,6 +34,9 @@
 - I struggled with the summary question -- this strategy was a game changer for me:  
   [https://www.youtube.com/watch?v=LuLfdP8ft2Mhttps://www.youtube.com/watch?v=LuLfdP8ft2M](https://www.youtube.com/watch?v=LuLfdP8ft2Mhttps://www.youtube.com/watch?v=LuLfdP8ft2M)
 
+- Make sure to select the institutions you want to send your TOEFL scores to before test day (by 10:00 PM local time) -- you can choose up to four institutions for free, and you won’t be able to add them afterward without paying extra.
+
+
 
 **Personal note:**
   I took the test in October 2025, after studying for less than two weeks. I aimed for 100+ overall and 27+ in Speaking.
